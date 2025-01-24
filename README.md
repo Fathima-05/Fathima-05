@@ -2,7 +2,7 @@
 - 👀 I’m interested in doing jourals and exploring new and different aspects of life
 - 🌱 I’m currently learning btech. As a first year student
 - 💞️ I’m looking to collaborate on ...
-- 📫 Reach me: on gmail- fathimatt2020cps@gmail.com and IG: mint_blush__
+- 📫 Reach me: on mail- fathimatt2020cps@gmail.com and IG: @mint_blush__
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Friendly
 
